@@ -1,4 +1,3 @@
-##Vinicius
 
 ## Introduction
 
